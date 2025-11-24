@@ -5,3 +5,4 @@
 
 # Timestamp
 - https://youtu.be/JzngncpZLuw?list=PL8seg1JPkqgF7hGmB0gUU5DKA7wrrMfZg&t=3609
+- https://youtu.be/JzngncpZLuw?list=PL8seg1JPkqgF7hGmB0gUU5DKA7wrrMfZg&t=4290
